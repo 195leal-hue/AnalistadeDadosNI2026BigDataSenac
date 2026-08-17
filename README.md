@@ -1,0 +1,1 @@
+# AnalistadeDadosNI2026BigDataSenac
